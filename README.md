@@ -2,4 +2,4 @@
 
 ### about
 
-> The wing of automation ability to everyone.
+> The wing of automation skills that make easy to everyone.
